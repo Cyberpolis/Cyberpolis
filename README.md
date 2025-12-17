@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Us:
 This proposal delves into the nascent concept of a "cyberpolis," a city where the fabric of daily life, governance, and infrastructure is intricately woven with information and communication technologies
 
 
